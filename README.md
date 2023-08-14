@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently unemployed, but I am actively searching for a job.<br>I am a self-taught student and I'm about to finish a bootcamp at SoyHenry.<br> I am seeking collaboration opportunities with web developers.<br>Ask me about Frontend and backend web application development.<br>You can reach me at contacto.davidt@gmail.com
+✅I am currently unemployed, but I am actively searching for a job.<br>✅I am a self-taught student and I'm about to finish a bootcamp at SoyHenry.<br> ✅I am seeking collaboration opportunities with web developers.<br>❓Ask me about Frontend and backend web application development.<br>📧You can reach me at contacto.davidt@gmail.com
 
 
 ## 🌐 Socials:
